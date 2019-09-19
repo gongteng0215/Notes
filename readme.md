@@ -1,3 +1,3 @@
 # Notes
 
-Some notes for Eboo.
+Some notes for Eboo. Any helps!
